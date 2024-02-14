@@ -14,7 +14,7 @@ Looking to Collaborate On
 I'm open to collaborating on projects that involve solving interesting problems or pushing the boundaries of technology.
 
 How to Reach Me
-You can reach out to me via email at juniornoukjam8@gmail.com or connect with me on LinkedIn.
+You can reach out to me via email at juniornoukam8@gmail.com or connect with me on LinkedIn.
 
 Fun Fact
 I enjoy exploring new hiking trails and finding hidden gems in nature. I am a piannist and i really like playing sports.
